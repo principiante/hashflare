@@ -1,0 +1,2 @@
+# hashflare
+investimento miniera
